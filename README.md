@@ -1,6 +1,6 @@
-## Download Impulse Mod Menu GTA 5 (FREE!)
+## Download Impulse Mod Menu GTA 5 (FREE)
 
-**[DOWNLOAD NOW](https://modmenuz.com/gta-5/impulse-trainer/)**
+**[DOWNLOAD FOR FREE NOW](https://modmenuz.com/gta-5/impulse-trainer/)**
 
 ![Impulse essential mod menu for GTA V](https://i.ytimg.com/vi/Xi4JJxHE1Os/maxresdefault.jpg)
 
