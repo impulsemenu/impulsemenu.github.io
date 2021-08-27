@@ -1,4 +1,4 @@
-## Download Impulse Mod Menu GTA 5 (FREE)
+## Impulse Mod Menu GTA 5 (FREE)
 
 **[DOWNLOAD FOR FREE NOW](https://modmenuz.com/gta-5/impulse-trainer/)**
 
@@ -9,7 +9,7 @@
 
 > **[CLICK HERE TO DOWNLOAD NOW](https://modmenuz.com/get/impulse-download/)**
 
-Are you looking for ways to use cheats safely in GTA 5? Then perfect! Impulse mod menu is a fantastic tool that you can use. So if you want to know more about this tool, read on.
+Are you looking for ways to use cheats safely in GTA 5? Then perfect! Impulse mod menu is a fantastic free tool that you can use. So if you want to know more about this tool, read on.
 
 ## Features of Impulse mod menu 
 Impulse mod menu has many fantastic features. It's easy to use, and in a few clicks, it performs the 'injection.' The program is compatible on both windows and windows mobile, and the latest version is Impulse mod menu 3.6. Here are some of its excellent features.
